@@ -1,3 +1,4 @@
+# 1 Corinthians 4
 ```
 7 So neither the one who plants nor the one who waters is anything, but only God, who makes things grow.
 ```
@@ -50,3 +51,12 @@ I have been behaving like that yesterday, as if I already reign my life. How sil
 Always humble yourself and know your true position.
 You are just like a prisoner with death sentence to hell, if not for Christ's salvation.
 What is there to brag or boast?
+
+# 1 Corithians 5
+`6 Your boasting is not good. Don’t you know that a little yeast leavens the whole batch of dough? 7 Get rid of the old yeast, so that you may be a new unleavened batch—as you really are. For Christ, our Passover lamb, has been sacrificed. 8 Therefore let us keep the Festival, not with the old bread leavened with malice and wickedness, but with the unleavened bread of sincerity and truth.`
+
+There is nothing to boast as a human being. Keep your heart in sincerity and truth, even though it takes more time and efforts. When doing business, people are not transaction items, but handle people with care and love. So that they might see Christ in you.
+
+`11 But now I am writing to you that you must not associate with anyone who claims to be a brother or sister[c] but is sexually immoral or greedy, an idolater or slanderer, a drunkard or swindler. Do not even eat with such people.`
+
+Like in the corporate setting, it just takes one person who is negative and uncooperative to corrupt the whole team. You know it is time to let this person go.
