@@ -69,9 +69,9 @@ Like in the corporate setting, it just takes one person who is negative and unco
 
 
 # 1 Corithans 6
-`If any of you has a dispute with another, do you dare to take it before the ungodly for judgment instead of before the Lord’s people? 2 Or do you not know that the Lord’s people will judge the world? And if you are to judge the world, are you not competent to judge trivial cases? 3 Do you not know that we will judge angels? How much more the things of this life! 4 Therefore, if you have disputes about such matters, do you ask for a ruling from those whose way of life is scorned in the church? 5 I say this to shame you. Is it possible that there is nobody among you wise enough to judge a dispute between believers? 6 But instead, one brother takes another to court—and this in front of unbelievers!
+`If any of you has a dispute with another, do you dare to take it before the ungodly for judgment instead of before the Lord’s people? 2 Or do you not know that the Lord’s people will judge the world? And if you are to judge the world, are you not competent to judge trivial cases? 3 Do you not know that we will judge angels? How much more the things of this life! 4 Therefore, if you have disputes about such matters, do you ask for a ruling from those whose way of life is scorned in the church? 5 I say this to shame you. Is it possible that there is nobody among you wise enough to judge a dispute between believers? 6 But instead, one brother takes another to court—and this in front of unbelievers!`
 
-7 The very fact that you have lawsuits among you means you have been completely defeated already. Why not rather be wronged? Why not rather be cheated? 8 Instead, you yourselves cheat and do wrong, and you do this to your brothers and sisters.
+`7 The very fact that you have lawsuits among you means you have been completely defeated already. Why not rather be wronged? Why not rather be cheated? 8 Instead, you yourselves cheat and do wrong, and you do this to your brothers and sisters.
 `
 
 Christians should have the confidence to know what is right or wrong in God's eyes, not having bringing disputes to non-believers.
