@@ -80,4 +80,18 @@ Christians should have the confidence to know what is right or wrong in God's ey
 - If needed, older people in the church should step out and judge the matters
 When a believer takes another believer to the court, it means there are lots of infighting within church. Why? Maybe the belief is built on the wrong foundations all along.
 
-Key reflection: Should not judget my spouse and focus on improving myself.
+Key reflection: 
+- Between couple, look upon yourself and god to keep improving yourself.
+- Look at the positive sides of your spouse, instead of focusing on her negatives.
+- God always intervene to discipline, so go ahead of God to intervene
+- Do not complain in front of other people about your spouse also.
+
+`12 “I have the right to do anything,” you say—but not everything is beneficial. “I have the right to do anything”—but I will not be mastered by anything. 13 You say, “Food for the stomach and the stomach for food, and God will destroy them both.” The body, however, is not meant for sexual immorality but for the Lord, and the Lord for the body. `
+
+`20 you were bought at a price. Therefore honor God with your bodies.`
+
+You are bought at a high price so you are precious, and many people do not know how precious they are in God's eyes. They chase after wealth or beauty to fill the emptiness within them; little did they know these vanities become their idols in the end. Men chased after money become a slave for money; women chased after beauty become a slave for beauty. Once addiction forms, it is so hard for them to have self-realization and capacity to change this.
+
+So you can do anything, but be alert not to become slave of that thing. This is the Demon's ensnare. Most importantly, it is remmeber that your are precious for God and you need nothing but Jesus Christ to be the center of your life. Love from god will keep flowing into your life and shackles of chains are broken so that you are free. 
+
+Freedom, peace, joy and love are so important, and do not let minor things in life steal those important things from you e.g. a friend owe your $4k.
