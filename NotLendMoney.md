@@ -8,6 +8,7 @@
 - The above Scriptures imply a couple of things:
 - First, there must truly be a need. And second, that lending the money would actually help the borrower and not simply allow that person to make more unwise financial decisions.
 
+In most cases, if someone periodically borrow money from others, that person has not actual needs here. He actually needs to look at his lifestyle or spending habits.
 
 `You also have to be sure that lending the money will actually help the borrower. Here are some questions to ask yourself:`
 - Can the borrower repay the loan? 
@@ -16,5 +17,6 @@
 - And last, ask yourself, can you make the money a gift instead of a loan? That way you’re not expecting it to be paid back, so you can’t be disappointed and your relationship won’t suffer. 
 
 `You should draw up agreement with that person. Trust humans but not human nature`
+
 Finally, If you do decide to lend the money, draw up a written agreement— even if you’re lending to a family member. When something’s in writing, it clarifies things and makes it known who’s responsible for what and when.
 The loan agreement should specify the amount, interest rate if any, payment structure and collateral, if any. That will help eliminate misunderstandings later on. You can find lots of promissory note templates online. Just fill in the blanks.
