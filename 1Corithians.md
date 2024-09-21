@@ -79,3 +79,5 @@ Christians should have the confidence to know what is right or wrong in God's ey
 - Be tolerant of each other.
 - If needed, older people in the church should step out and judge the matters
 When a believer takes another believer to the court, it means there are lots of infighting within church. Why? Maybe the belief is built on the wrong foundations all along.
+
+Key reflection: Should not judget my spouse and focus on improving myself.
