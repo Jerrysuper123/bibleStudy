@@ -36,5 +36,5 @@ In most cases, if someone periodically borrow money from others, that person has
 
 `You should draw up agreement with that person. Trust humans but not human nature`
 
-Finally, If you do decide to lend the money, draw up a written agreement— even if you’re lending to a family member. When something’s in writing, it clarifies things and makes it known who’s responsible for what and when.
+Finally, If you do decide to lend the money, draw up a written agreement — even if you’re lending to a family member. When something’s in writing, it clarifies things and makes it known who’s responsible for what and when.
 The loan agreement should specify the amount, interest rate if any, payment structure and collateral, if any. That will help eliminate misunderstandings later on. You can find lots of promissory note templates online. Just fill in the blanks.
