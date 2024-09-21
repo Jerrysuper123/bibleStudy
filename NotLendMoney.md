@@ -8,7 +8,7 @@
 - The above Scriptures imply a couple of things:
 - First, there must truly be a need. And second, that lending the money would actually help the borrower and not simply allow that person to make more unwise financial decisions.
 
-In most cases, if someone periodically borrow money from others, that person has not actual needs here. He actually needs to look at his lifestyle or spending habits.
+In most cases, if someone periodically borrow money from others, that person has no actual needs here. Instead, she/he actually needs to review/change his lifestyle or spending habits.
 - If someone is working hard in his job/business, he would not need to periodically borrow money from others.
 - It is sign that they are periodic borrowers if he/she said that they will return you next week. The money is never returned next week.
 - In many instances, they would use one lie after another to cover up; you simply do not know what is going on on their sides.
