@@ -22,6 +22,12 @@ In most cases, if someone periodically borrow money from others, that person has
 - Well, it is a small price to learn such a good lesson and find out who they really are.
 - There are some some cases when people return your money, and that actually strengthened the relationship due to increased trust. But this is actually a rare case.
 
+`Why so persistent to get all money back`
+- Maybe when the loan is a small amount, the borrower continue their lavish lifestyle without a care for the borrower.
+- If borrower puts the money into good use, be more diligent in business or his job.
+- The lender might have just considered this as a gift.
+- But if the borrower's character never change, there will be feelings of injustice. It seems that only getting all the money back could quench that.
+
 `You also have to be sure that lending the money will actually help the borrower. Here are some questions to ask yourself:`
 - Can the borrower repay the loan? 
 - what shape will you be in if the money isn’t repaid? If you can’t afford to lose it, you can’t afford to lend it.
