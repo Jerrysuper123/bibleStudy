@@ -66,3 +66,16 @@ There is nothing to boast as a human being. Keep your heart in sincerity and tru
 `11 But now I am writing to you that you must not associate with anyone who claims to be a brother or sister[c] but is sexually immoral or greedy, an idolater or slanderer, a drunkard or swindler. Do not even eat with such people.`
 
 Like in the corporate setting, it just takes one person who is negative and uncooperative to corrupt the whole team. You know it is time to let this person go.
+
+
+# 1 Corithans 6
+`If any of you has a dispute with another, do you dare to take it before the ungodly for judgment instead of before the Lord’s people? 2 Or do you not know that the Lord’s people will judge the world? And if you are to judge the world, are you not competent to judge trivial cases? 3 Do you not know that we will judge angels? How much more the things of this life! 4 Therefore, if you have disputes about such matters, do you ask for a ruling from those whose way of life is scorned in the church? 5 I say this to shame you. Is it possible that there is nobody among you wise enough to judge a dispute between believers? 6 But instead, one brother takes another to court—and this in front of unbelievers!
+
+7 The very fact that you have lawsuits among you means you have been completely defeated already. Why not rather be wronged? Why not rather be cheated? 8 Instead, you yourselves cheat and do wrong, and you do this to your brothers and sisters.
+`
+
+Christians should have the confidence to know what is right or wrong in God's eyes, not having bringing disputes to non-believers.
+- Paul emphasized that believers should be united.
+- Be tolerant of each other.
+- If needed, older people in the church should step out and judge the matters
+When a believer takes another believer to the court, it means there are lots of infighting within church. Why? Maybe the belief is built on the wrong foundations all along.
