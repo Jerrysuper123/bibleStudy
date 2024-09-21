@@ -92,6 +92,6 @@ Key reflection:
 
 You are bought at a high price so you are precious, and many people do not know how precious they are in God's eyes. They chase after wealth or beauty to fill the emptiness within them; little did they know these vanities become their idols in the end. Men chased after money become a slave for money; women chased after beauty become a slave for beauty. Once addiction forms, it is so hard for them to have self-realization and capacity to change this.
 
-So you can do anything, but be alert not to become slave of that thing. This is the Demon's ensnare. Most importantly, it is remmeber that your are precious for God and you need nothing but Jesus Christ to be the center of your life. Love from god will keep flowing into your life and shackles of chains are broken so that you are free. 
+So you can do anything, but be alert not to become slave of that thing. This is the Demon's ensnare. Most importantly, it is to remmeber that your are precious for God and you need nothing but Jesus Christ to be the center of your life. Love from god will keep flowing into your life and shackles of chains are broken so that you are free. 
 
 Freedom, peace, joy and love are so important, and do not let minor things in life steal those important things from you e.g. a friend owe your $4k.
