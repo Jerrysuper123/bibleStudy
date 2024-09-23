@@ -98,13 +98,22 @@ Freedom, peace, joy and love are so important, and do not let minor things in li
 
 # 1 corithian 7
 ` 4 The wife does not have authority over her own body but yields it to her husband. In the same way, the husband does not have authority over his own body but yields it to his wife. 5 Do not deprive each other except perhaps by mutual consent and for a time, so that you may devote yourselves to prayer. Then come together again so that Satan will not tempt you because of your lack of self-control. `
+- Paul rightly point out as husband and wife, we should sacrifice for each other, so that there will be unity in Christ
+- However, human nature is self-pleasing, often seeking his own rights.
+- It takes a long time for the husband and wife to learn the true humility
+- This process is tough.
+- And also do not deprive of each other, for your `lack of self control`
 
 
 `17 Nevertheless, each person should live as a believer in whatever situation the Lord has assigned to them, just as God has called them. This is the rule I lay down in all the churches. 
 ...
 20 Each person should remain in the situation they were in when God called them.
 `
+- No matter what status God called you to serve, do not be ashamed.
+- Be your authentic self and be proud in serving the master
 
 `28 ... But those who marry will face many troubles in this life, and I want to spare you this.`
-
 `32 I would like you to be free from concern. An unmarried man is concerned about the Lord’s affairs—how he can please the Lord. 33 But a married man is concerned about the affairs of this world—how he can please his wife—`
+- Indeed, there are many troubles after marriage.
+- But ultimately a husband should focus on God's interest instead of his wife's. This does not mean that the husband does not show tender love to the wife. It just means that God is the priority in the family.
+- So look to god, do not look to the wife - each of us has our own learning paths that God has laid out for us.
