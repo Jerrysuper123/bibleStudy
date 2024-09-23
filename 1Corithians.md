@@ -95,3 +95,16 @@ You are bought at a high price so you are precious, and many people do not know 
 So you can do anything, but be alert not to become slave of that thing. This is the Demon's ensnare. Most importantly, it is to remmeber that your are precious for God and you need nothing but Jesus Christ to be the center of your life. Love from god will keep flowing into your life and shackles of chains are broken so that you are free. 
 
 Freedom, peace, joy and love are so important, and do not let minor things in life steal those important things from you e.g. a friend owe your $4k.
+
+# 1 corithian 7
+` 4 The wife does not have authority over her own body but yields it to her husband. In the same way, the husband does not have authority over his own body but yields it to his wife. 5 Do not deprive each other except perhaps by mutual consent and for a time, so that you may devote yourselves to prayer. Then come together again so that Satan will not tempt you because of your lack of self-control. `
+
+
+`17 Nevertheless, each person should live as a believer in whatever situation the Lord has assigned to them, just as God has called them. This is the rule I lay down in all the churches. 
+...
+20 Each person should remain in the situation they were in when God called them.
+`
+
+`28 ... But those who marry will face many troubles in this life, and I want to spare you this.`
+
+`32 I would like you to be free from concern. An unmarried man is concerned about the Lord’s affairs—how he can please the Lord. 33 But a married man is concerned about the affairs of this world—how he can please his wife—`
