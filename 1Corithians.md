@@ -117,3 +117,13 @@ Freedom, peace, joy and love are so important, and do not let minor things in li
 - Indeed, there are many troubles after marriage.
 - But ultimately a husband should focus on God's interest instead of his wife's. This does not mean that the husband does not show tender love to the wife. It just means that God is the priority in the family.
 - So look to god, do not look to the wife - each of us has our own learning paths that God has laid out for us.
+
+# 1 corithian chapter 8
+`But knowledge puffs up while love builds up. 2 Those who think they know something do not yet know as they ought to know. 3 But whoever loves God is known by God.[a]`
+
+A person with knowledge but no love is nothing.
+
+How to understand this and bring this into day to day life? 
+- If a person is more knowledgeable, but the way he expresses his idea is not in a loving way. Then he is not likely to persuade people to follow him.
+- If a person is more knowledgeable, and the spouse is more emotional/less knowledgeable, he should speak slowly and calmly in the way that his spouse understood. Otherwise, it is knowledge without love.
+- If a person knows his bro/sister is sinning, he should speak a way with love, not condemnation, so that the bro/sis could turn over a new leaf.
