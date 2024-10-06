@@ -6,6 +6,7 @@ Syncretism is the combination of different forms of belief or practice.
 ...
 9 The Lord became angry with Solomon because his heart had turned away from the Lord, the God of Israel, who had appeared to him twice. 10 Although he had forbidden Solomon to follow other gods, Solomon did not keep the Lord’s command. 11 So the Lord said to Solomon, “Since this is your attitude and you have not kept my covenant and my decrees, which I commanded you, I will most certainly tear the kingdom away from you and give it to one of your subordinates.
 `
+
 Syncretism is a form of adultery as well, where you are blending worldly idols with god. Just like Soloman, in human's eyes, he has been pursuing God by building god's temple for 7 years. However, he has been building his own palace for 14 years.
 He has all the wealth and all the women in the world. Full of wisdom, but led a pitiful old years, where he finds everything empty under the sky. In the end, his kingdom is divided into two states.
 
