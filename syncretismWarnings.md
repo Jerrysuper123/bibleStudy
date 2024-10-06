@@ -17,4 +17,6 @@ This means when you have great progress and success in the world. You tend to fo
 # Christians must be thick-faced to face Satan's accusations
 Even though it is hard to have a pure heart to follow god in this world, by our flesh we cannot. But when we gave up ourselves, and follow god, holy spirits then could come in and fill in us with god's love. Then we could do it together with god.
 
+So we tell Satan that Yes by my flesh I cannot, but Jesus has died for me and make me righteous. We can still stand righteously. We must be thick-faced, just like Jacob wrestled with God. He never let god go until getting his blessings.
+
 
