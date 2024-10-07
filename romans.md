@@ -3,6 +3,7 @@
 
 # human wickeness suppresses the truth, although it was revealed to people by the lord long ago
 Although people knew god, they are not thankful and foolish enough to worship false gods.
+
 `18 The wrath of God is being revealed from heaven against all the godlessness and wickedness of people, who suppress the truth by their wickedness,19 since what may be known about God is plain to them, because God has made it plain to them.`
 
 # God gave wicked hearts to sinful desires, hidden from truth
