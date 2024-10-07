@@ -1,12 +1,12 @@
 # Do not be ashamed of the gospel
 `16 For I am not ashamed of the gospel, because it is the power of God that brings salvation to everyone who believes: first to the Jew, then to the Gentile.`
 
-# human wickeness suppresses the truth, althought it was revealed to god long ago
+# human wickeness suppresses the truth, although it was revealed to people by the lord long ago
 Although people knew god, they are not thankful and foolish enough to worship false gods.
 `18 The wrath of God is being revealed from heaven against all the godlessness and wickedness of people, who suppress the truth by their wickedness,19 since what may be known about God is plain to them, because God has made it plain to them.`
 
 # God gave wicked hearts to sinful desires, hidden from truth
-Once someone's heart is filled with sinful desires. They exchanged the truth with a lie.
+Once someone's heart is filled with sinful desires. They exchanged the truth with a lie. Once there is a lie planted, people eventually started to worshipping someone else than god. It could be money or sexual desires or other things, all forms of idols - that takes our attention from god.
 
 There is natural seuxal relation between husband and wife, but people turn to unnatural ones, defiling their bodies.
 
